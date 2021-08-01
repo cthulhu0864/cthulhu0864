@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on scratch
 - 📫 How to reach me: my scratch is @Cthulhu0864
 
-cthulhu0864/cthulhu0864 is a ✨ special ✨ person because i like to scream! :)
+cthulhu0864/cthulhu0864 is a ✨ special ✨ person because they like to scream! :)
